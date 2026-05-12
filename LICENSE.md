@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with smart Polymarket Addon | scalping-strategies + backtesting, the #1 addon. Includes scalping-strategies and backtesting for a smoother and more
 
 
 
